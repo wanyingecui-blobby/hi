@@ -1,3 +1,6 @@
 # hi
-this is secret and thank you to kingwither4046
+this is secret 
+Thank you to kingwither4046 and Team Cherry
 click the .html for the hollow knight thing
+
+NOT a original game
